@@ -50,7 +50,7 @@ Passionate about storytelling and creating intuitive, user-centered digital expe
 ## 📇 References
 
 - **Megan Danielle Hamman** – +27 833 819 056 | [HAMMAN@mycput.ac.onmicrosoft.com](mailto:HAMMAN@mycput.ac.onmicrosoft.com)  
-- **Mrs. O’Brian** – Contact details available upon request  
+- **Mr.Itumeleng Maine** – +27 605 817 615 | [Maine@mycput.ac.za](mailto:Maine@mycput.ac.za )
 
 ---
 
