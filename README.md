@@ -48,11 +48,10 @@ Passionate about storytelling and creating intuitive, user-centered digital expe
 ---
 
 ## 📇 References
-video interview link: https://1drv.ms/v/c/4ac8dbfc0179c867/IQCLLXaWldxURaLYzS9V7iZbAYiqI5VQIqDA66oHPJw_ewQ?e=egHpLF
 
 - **Megan Danielle Hamman** – +27 833 819 056 | [HAMMAN@mycput.ac.onmicrosoft.com](mailto:HAMMAN@mycput.ac.onmicrosoft.com)  
 - **Mr.Itumeleng Maine** – +27 605 817 615 | [Maine@mycput.ac.za](mailto:Maine@mycput.ac.za )
 
 ---
 
-⭐ Fun Fact: I love blending creativity with technology to craft experiences that people enjoy using!
+video interview link: https://1drv.ms/v/c/4ac8dbfc0179c867/IQCLLXaWldxURaLYzS9V7iZbAYiqI5VQIqDA66oHPJw_ewQ?e=egHpLF
